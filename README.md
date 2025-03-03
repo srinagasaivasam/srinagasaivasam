@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning colour grading in editing 
 - 🤔 I’m looking for someone having best editing skills 
 - 💬 need A web Developer 
-- 📫 I Am From Gudlavallu
-- ✌🏻 We can Make a Startup
+- ✌🏻 We can Make a Startup 
+- 📫 I Am From Gudlavallu 
 - 😄 If there Is Something to ask contact Me at (srinagasaivasam@gmail.com)
 - ⚡ A Fact Will always Be Funny 
